@@ -1,0 +1,2 @@
+# CTF COMPFEST 15 (OUR FIRST EVER PROJECT)
+Pertama kali main ctf featuring wiswis, uriel, and nocturnal planet. Kita sangat skill issue sekali dan cuma selesai 3 soal. **Ada 1 soal yang gak masuk ke dalem wu nya, data nya hilang entah kemana**. But it was fun, we enjoyed it.
